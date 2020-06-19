@@ -4,9 +4,10 @@ description: An intimate calamity
 date: 2020-06-07
 ---
 
+<!--
 Here, I’d like to borrow a couple of words from Marquez to say that it was the beginning of an “intimate calamity”.
-
 For a brief time during winter last year, I had a little entanglement of my own. A person. You. What moves fast, stops fast. Or so it goes. And surely it did. All of it came to an abrupt end but not so abruptly perhaps because I had a vague sense of the nearing end because highs don't last very long. Well, not as long as you want them to but the withdrawals are to fear for anyway.
+-->
 
 Spring in Pokhara is mostly just pre-monsoon. Gently throbbing sun makes for the perfect background lighting for the indecisive, unstable clouds ready to burst, instilling into your stagnant life, just the commotion you need to feel your breath again. You never forget your umbrella when you’re in Pokhara. Or so it goes.Unstable, indecisive and unpredictable clouds burst as they please. Silence often follows after a storm. Or so it goes. But things do not work that way in Pokhara. The clouds here are unforgiving. You see, the clouds looming above this city are apathetic.
 
